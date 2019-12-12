@@ -4,17 +4,17 @@ This is my Great Grandmothers (grandmère's) recipe. My Dad says when Grandmère
 
 ## Ingredients
 
-1/2 Cup + 2 Tablespoons Milk
-1 1/4 oz. package active Dry Yeast
-3 Cups Flour
-1/4 c sugar
-1 tsp salt
-1/4 c butter, melted
-1/4 c + 1 Tablespoon butter at room temp
-Vegetable oil for the pan
-1/4 cup packed brown sugar
-1 c powdered sugar
-1 tsp vanilla
+-   1/2 Cup + 2 Tablespoons Milk
+-   1 1/4 oz. package active Dry Yeast
+-   3 Cups Flour
+-   1/4 c sugar
+-   1 tsp salt
+-   1/4 c butter, melted
+-   1/4 c + 1 Tablespoon butter at room temp
+-   Vegetable oil for the pan
+-   1/4 cup packed brown sugar
+-   1 c powdered sugar
+-   1 tsp vanilla
 
 ## Recipe
 
